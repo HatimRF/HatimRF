@@ -21,7 +21,7 @@ Here are some ideas to get you started:
 
 - 📫 How to reach me **hatim.rhazi.filali@gmail.com**
 
-- 📄 Know about my experiences [**CV**](https://drive.google.com/file/d/1y7p7He--LYMbjzcbAXjIB1-JbWNzdRXA/view?usp=sharing)**
+- 📄 Know about my experiences [**CV**](https://drive.google.com/file/d/1y7p7He--LYMbjzcbAXjIB1-JbWNzdRXA/view?usp=sharing). 
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
